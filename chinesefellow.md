@@ -1,4 +1,4 @@
-DL
-LT
+DanL
+Lane Tech
 
-Food things.
+The souls of students who procrastinate.
